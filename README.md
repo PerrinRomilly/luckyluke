@@ -1,2 +1,0 @@
-# luckyluke
-Lucky Luke
